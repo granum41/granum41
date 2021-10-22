@@ -1,1 +1,1 @@
-Integrating vertical synergies
+Branding front-end paradigms
