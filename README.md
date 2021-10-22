@@ -1,1 +1,1 @@
-Empowering scalable markets
+Whiteboarding collaborative e-markets [Regenerate my intro](zombo.com)
