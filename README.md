@@ -1,1 +1,1 @@
-Embracing seamless functionalities [Regenerate my intro](https://zombo.com)
+Targeting sexy technologies  -- [Regenerate](https://zombo.com)
