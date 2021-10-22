@@ -1,1 +1,1 @@
-aggregate next-generation networks
+brand best-of-breed partnerships
