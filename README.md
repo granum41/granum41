@@ -1,1 +1,1 @@
-evolve leading-edge content
+aggregate next-generation networks
