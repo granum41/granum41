@@ -1,1 +1,1 @@
-Branding front-end paradigms
+Extending bleeding-edge initiatives
