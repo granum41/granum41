@@ -1,1 +1,1 @@
-synthesize front-end communities
+aggregate cross-platform e-services
