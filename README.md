@@ -1,1 +1,1 @@
-Targeting sexy technologies  -- [Regenerate](https://zombo.com)
+Engineering bleeding-edge applications  -- [Regenerate](https://zombo.com)
