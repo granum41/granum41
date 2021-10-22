@@ -1,1 +1,1 @@
-Expediting wireless e-services
+Integrating vertical synergies
