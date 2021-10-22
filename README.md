@@ -1,1 +1,1 @@
-Whiteboarding collaborative e-markets [Regenerate my intro](zombo.com)
+Embracing seamless functionalities [Regenerate my intro](https://zombo.com)
