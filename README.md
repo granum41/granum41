@@ -1,1 +1,3 @@
-Engineering bleeding-edge applications  -- [Regenerate](https://zombo.com)
+Synergizing e-business metrics  
+
+[Regenerate this Bio](https://zombo.com)
