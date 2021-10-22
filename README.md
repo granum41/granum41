@@ -1,1 +1,1 @@
-brand best-of-breed partnerships
+enable web-enabled channels
