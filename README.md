@@ -1,1 +1,1 @@
-Extending bleeding-edge initiatives
+Empowering scalable markets
