@@ -1,1 +1,1 @@
-Seizing user-centric relationships
+Expediting wireless e-services
